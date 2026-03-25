@@ -11,7 +11,7 @@ Pet dander and hair
 Allergens like pollen
 Bacteria and odors
 
-Regular vacuuming helps, but it doesn’t remove deep-seated grime. That’s where professional carpet cleaning services in [Fremont come in.](https://carpetcleanerfremont.com/)
+Regular vacuuming helps, but it doesn’t remove deep-seated grime. That’s where professional carpet cleaning services in 
 
 Benefits of Hiring a Professional Carpet Cleaner
 1. Deep Cleaning Technology
